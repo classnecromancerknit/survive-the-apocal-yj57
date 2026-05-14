@@ -1,4 +1,4 @@
-#  
+#  survive the apocalypse Scripts updated is the best survive the apocalypse Script, featuring infinite resources and aimbot. Safe and powerful for all
 
 
 
